@@ -34,3 +34,27 @@ https://giveaway.tickcoupon.com/oo-diskimage-professional-free-key/
 
 Giveaway: Bitdefender Total Security (6-Month) – Keep your account and valuable content safe
 https://giveaway.tickcoupon.com/bitdefender-total-security-giveaway-key/
+
+Avira Unwrap your gift: 3 months of premium protection
+https://campaigns.avira.com/en/bzd/antivirus/av_pro_trial_rlm
+
+Bitdefender Total Security Giveaway: 6-Month License
+https://winningpc.com/bitdefender-total-security-coupon-code-free-key/
+
+UnHackMe
+https://winningpc.com/unhackme-full-license-key-giveaway-download/
+
+XenArmor Windows Defender Manager Pro Giveaway: 1-Year License Key
+https://winningpc.com/xenarmor-windows-defender-manager-pro-key/
+
+A1RunGuard Premium
+https://winningpc.com/a1runguard-premium-license-key-free-download/
+
+Avira Prime
+https://campaigns.avira.com/en/crm/trial/prime
+
+IObit Malware Fighter PRO Giveaway: 6-Month License
+https://winningpc.com/iobit-malware-fighter-pro-coupon-code-review/
+
+F-Secure Internet Security
+https://winningpc.com/f-secure-internet-security/
