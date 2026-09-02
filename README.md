@@ -35,6 +35,12 @@ https://giveaway.tickcoupon.com/oo-diskimage-professional-free-key/
 Giveaway: Bitdefender Total Security (6-Month) – Keep your account and valuable content safe
 https://giveaway.tickcoupon.com/bitdefender-total-security-giveaway-key/
 
+Avira Antivirus Pro 2024 – 3 Months Giveaway
+https://giveaway.tickcoupon.com/avira-antivirus-pro-license-key-for-free/
+
+Avira Phantom VPN Pro 6-Month Giveaway
+https://giveaway.tickcoupon.com/avira-phantom-vpn-pro-for-free/
+
 Avira Unwrap your gift: 3 months of premium protection
 https://campaigns.avira.com/en/bzd/antivirus/av_pro_trial_rlm
 
