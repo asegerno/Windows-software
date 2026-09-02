@@ -10,6 +10,10 @@ Softopaz Free Software Giveaways
 https://softopaz.com/giveaway/
 
 # Windows-software
+
+WinToUSB Professional License Key
+https://softopaz.com/giveaway/hasleo/wintousb/
+
 WinToUSB Professional - free license for 1 year
 https://tunecom.ru/licenses/669-wintousb-pro-besplatnaja-licenzija.html
 
