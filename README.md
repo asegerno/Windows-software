@@ -1,3 +1,8 @@
+# Windows-Giveaway_to_software
+
+Free Software Download - Get Your Daily Free Download Now By BitsDujour
+https://www.bitsdujour.com/free-software-download
+
 # Windows-software
 WinToUSB Professional - free license for 1 year
 https://tunecom.ru/licenses/669-wintousb-pro-besplatnaja-licenzija.html
