@@ -11,6 +11,9 @@ https://softopaz.com/giveaway/
 
 # Windows-software
 
+EaseUS Partition Master Professional License Key
+https://softopaz.com/giveaway/easeus/partition-master/
+
 WinToUSB Professional License Key
 https://softopaz.com/giveaway/hasleo/wintousb/
 
